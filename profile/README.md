@@ -2,7 +2,7 @@ The 2024 Adidas Indoor Nationals begins on March 15 inside the Virginia Beach Sp
 
 <a href="https://bestones.icu/adidasindoor/">Click Here to Watch Live</a>
 
-<a href="https://bestones.icu/adidasindoor/">Adidas Indoor Nationals 2024 Live Stream</a>
+<a href="https://bestones.icu/adidasindoor/">Adidas Track Nationals 2024 Live Stream</a>
 
 The rest of the events will happen throughout Friday, Saturday and Sunday as teams and individuals compete for national titles. 
 
